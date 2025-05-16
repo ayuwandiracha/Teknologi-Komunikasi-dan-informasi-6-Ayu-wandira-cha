@@ -1,0 +1,1 @@
+# Teknologi-Komunikasi-dan-informasi-6-Ayu-wandira-cha
